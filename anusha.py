@@ -1,4 +1,4 @@
-hi Beworld web services PTV LTD,
+Dear Beworld web services PTV LTD,
 Please find attached your invoice from AppsFlyer.
 Additional information regarding your bill and your account history are available under the payments tab on the dashboard.
 
